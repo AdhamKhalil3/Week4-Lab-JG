@@ -1,8 +1,7 @@
 # Week4-Lab-JG
 
-Lab-4 Practice
-Forking me file and adding some lemonade.
-
+how u doing man
+hope everything is well!
 
 Lets see what we come up with. (Hey man, accept my discord request!)
 
